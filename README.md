@@ -1,2 +1,1 @@
-# tedx
-ted Cusat
+CLUBS SOCIETY ,CUSAT
